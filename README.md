@@ -1,16 +1,19 @@
-## Hi there 👋
+![typewriter (1)](https://github.com/user-attachments/assets/b4039378-da3f-4aa4-a87f-56fe7fb26b80)
 
-<!--
-**PoisonedGrace/poisonedGrace** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<img align="right" src="https://github.com/user-attachments/assets/18e82354-d422-451e-8516-f5b170367990" width="200" height="350">
 
-Here are some ideas to get you started:
+$\texttt{\color{#a573ce}hello! Welcome. I hope you find something of interest here.}$
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+$\texttt{\color{#a573ce}you can just call me Shiori, Shio or Vil, I don't mind at all anything is fine with me 🍎}$
+
+$\texttt{\color{#a573ce}my pronouns are She/They, unfortunately I don't accept any other pronouns other than the ones listed in it. 🍎}$
+
+$\texttt{\color{#a573ce}C+H is mostly fine with me, but please don't be mean to me, plus if I'm with friends please do ask me in whisper! 🍎}$
+
+$\texttt{\color{#a573ce}please do check my Pronouns.page for any more stuff related to me, like what I like and hate, what names to use and all that 🍎}$
+
+$\texttt{\color{#a573ce}The Lyric is an english translation of SDC(Show and Dance Championship)'s Song 'Absolutely beautiful'}$
+
+![](https://komarev.com/ghpvc/?username=PoisonedGrace&color=8c37dc&style=plastic&label=🍎&abbreviated=true)
+
+$\texttt{\color{#a573ce}Asp1rin on the En server of Twisted wonderland, please do friend me there!🍎}$
