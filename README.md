@@ -8,7 +8,12 @@ $\texttt{\color{#a573ce}you can just call me Shiori, Shio or Vil, I don't mind a
 
 $\texttt{\color{#a573ce}my pronouns are She/They, unfortunately I don't accept any other pronouns other than the ones listed in it. 🍎}$
 
-$\texttt{\color{#a573ce}C+H is mostly fine with me, but please don't be mean to me, plus if I'm with friends please do ask me in whisper! 🍎}$
+$\texttt{\color{#a573ce}C+H is mostly fine with me, but please don't be mean to me, plus if I'm with friends please do ask me in whisper if you can sit or interact in general with me! 🍎}$
+
+<details>
+<summary> More Information</summary>
+I do have Autism Spectrum disorder like my friend Lyn/BriarPrince I am a bit of Socially awkward to newer people, and I don't like loud sounds + I can't really control my own temperement so if I yell and cry please do be gentle with me.
+</details>
 
 $\texttt{\color{#a573ce}please do check my Pronouns.page for any more stuff related to me, like what I like and hate, what names to use and all that 🍎}$
 
