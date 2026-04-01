@@ -16,4 +16,4 @@ $\texttt{\color{#a573ce}The Lyric is an english translation of SDC(Show and Danc
 
 ![](https://komarev.com/ghpvc/?username=PoisonedGrace&color=8c37dc&style=plastic&label=🍎&abbreviated=true)
 
-$\texttt{\color{#a573ce}Asp1rin on the En server of Twisted wonderland, please do friend me there!🍎}$
+$\texttt{\color{#a573ce}Po1s0ned on the En server of Twisted wonderland, please do friend me there!🍎}$
