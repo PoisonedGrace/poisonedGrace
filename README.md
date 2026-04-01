@@ -19,6 +19,6 @@ $\texttt{\color{#a573ce}please do check my Pronouns.page for any more stuff rela
 
 $\texttt{\color{#a573ce}The Lyric is an english translation of SDC(Show and Dance Championship)'s Song 'Absolutely beautiful'}$
 
-![](https://komarev.com/ghpvc/?username=PoisonedGrace&color=8c37dc&style=plastic&label=Viewers🍎&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=PoisonedGrace&color=8c37dc&style=plastic&label=Viewers!&abbreviated=true)
 
 $\texttt{\color{#a573ce}Po1s0ned on the En server of Twisted wonderland, please do friend me there!🍎}$
