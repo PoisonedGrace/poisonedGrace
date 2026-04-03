@@ -17,7 +17,7 @@ I do have Autism Spectrum disorder like my friend Lyn/BriarPrince I am a bit of 
 
 $\texttt{\color{#a573ce}please do check my Pronouns.page for any more stuff related to me, like what I like and hate, what names to use and all that 🍎}$
 
-$\texttt{\color{#a573ce} my discord is @/poisoned_grace so please feel free to friend me but I will probably be late to reply to certain messages there. 🍎}$
+$\texttt{\color{#a573ce} my discord is @/poisonedgrace so please feel free to friend me but I will probably be late to reply to certain messages there. 🍎}$
 
 $\texttt{\color{#a573ce}The Lyric is an english translation of SDC(Show and Dance Championship)'s Song 'Absolutely beautiful'}$
 
