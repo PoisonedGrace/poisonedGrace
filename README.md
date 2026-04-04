@@ -19,7 +19,7 @@ $\texttt{\color{#a573ce}please do check my Pronouns.page for any more stuff rela
 
 $\texttt{\color{#a573ce} my discord is @/poisonedgrace so please feel free to friend me but I will probably be late to reply to certain messages there. 🍎}$
 
-$\texttt{\color{#a573ce} I'm also always hanging out with @riririnnie or @BriarPrince in pony town!
+$\texttt{\color{#a573ce} I'm also always hanging out with @riririnnie or @BriarPrince in pony town! 🍎}$
 
 $\texttt{\color{#a573ce}The Lyric is an english translation of SDC(Show and Dance Championship)'s Song 'Absolutely beautiful'}$
 
