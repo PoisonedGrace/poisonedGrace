@@ -12,7 +12,7 @@ $\texttt{\color{#a573ce}C+H is mostly fine with me, but please don't be mean to 
 
 <details>
 <summary> More Information</summary>
-I do have Autism Spectrum disorder like my friend Lyn/BriarPrince I am a bit of Socially awkward to newer people, and I don't like loud sounds + I can't really control my own temperement so if I yell and cry please do be gentle with me.
+I do have Autism Spectrum disorder, I am a bit of Socially awkward to newer people, and I don't like loud sounds + I can't really control my own temperement so if I yell and cry please do be gentle with me.
 </details>
 
 $\texttt{\color{#a573ce}please do check my Pronouns.page for any more stuff related to me, like what I like and hate, what names to use and all that 🍎}$
